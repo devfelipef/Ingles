@@ -10,3 +10,7 @@ Se for o caso, agora que você já aprendeu que caralhos serve o google, utilize
 Frequente comunidades que falam inglês (discord, chats em ingles, etc). Utilize o google tradutor para melhorar seu vocabulário, leia coisas em inglês com a tradução, com o tempo você não vai mais precisar traduzir pra português, a palavra em inglês já vai fazer mais sentido que o próprio português e então você vai estar praticamente pronto para se virar com o inglês.
 
 Até que muitas traduções em português de livros em inglês mas são toscas ou simplesmente não existem, então aprenda no minimo inglês técnico. :)
+***
+Aqui vai alguns sites/apps para aprender inglês:
+https://pt.duolingo.com/
+...
